@@ -1,2 +1,2 @@
 # AgroSphere
-adek adek banget
+otw sby bantai adek adek
